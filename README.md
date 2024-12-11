@@ -1,6 +1,6 @@
 - 🎀 Hi, I’m @Mainell !
 
-- 💞 I’m interested in data analysis, geography and life with horses !
+- 💝 I’m interested in data analysis, geography and life with horses !
 - ✨ I’m currently learning data sciences and natural horsemanship... so cool !
 - 🪴 I’m looking to collaborate on environmental projects.
 
